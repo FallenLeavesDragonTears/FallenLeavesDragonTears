@@ -1,4 +1,5 @@
 【 Welcome To My Data Bank 】
+
 <img src="https://static.wikia.nocookie.net/houkai-star-rail/images/e/e3/NPC_Dan_Feng.png/revision/latest/thumbnail/width/360/height/360?cb=20240624140119"> 
 
 ☾ These Sins of the past...Are mine and mine alone... ☽
