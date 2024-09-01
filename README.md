@@ -1,5 +1,5 @@
 【 Welcome To My Data Bank 】
-<img src="(https://i.pinimg.com/originals/f5/87/0f/f5870f7389401652646ff35f40d882c0.jpg)"> 
+<img src="https://static.wikia.nocookie.net/houkai-star-rail/images/e/e3/NPC_Dan_Feng.png/revision/latest/thumbnail/width/360/height/360?cb=20240624140119"> 
 
 ☾ These Sins of the past...Are mine and mine alone... ☽
 
@@ -19,4 +19,4 @@
 
 ➸ Please do not interact, if you're going to be sexual with me. Yes, it's the 18+ server but there should be NO excuse for pushing boundaries, they exist for a reason! If you're going to just overall be rude, I can and will hide you and your friends if they persist I unhide, I can usually understand jokes but I normally wish to be left alone. 
 
-<img src="https://dropinblog.net/34253354/files/featured/honkai-star-rail-dan-heng-imbibitor-lunae-build-guide-1.jpg">
+
