@@ -1,9 +1,9 @@
 【 Welcome To My Data Bank 】
 <img src="https://www.pcgamesn.com/wp-content/sites/pcgamesn/2023/07/honkai-star-rail-imbibitor-lunae-dan-heng.jpg"> 
 
-☾ Come with me take the journey ☽
+☾ These Sins of the past...Are mine and mine alone... ☽
 
-<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e15a9051-e20c-467a-8375-90dee1a91fc4/dgsavby-41e5e0d1-2f95-45f7-bef2-72c3f011731a.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UxNWE5MDUxLWUyMGMtNDY3YS04Mzc1LTkwZGVlMWE5MWZjNFwvZGdzYXZieS00MWU1ZTBkMS0yZjk1LTQ1ZjctYmVmMi03MmMzZjAxMTczMWEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.09E7zI-hdWFCHL3Aar2i043-Ic9iuvdkc8tnndvRWFg">
+<img src="[https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e15a9051-e20c-467a-8375-90dee1a91fc4/dgsavby-41e5e0d1-2f95-45f7-bef2-72c3f011731a.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UxNWE5MDUxLWUyMGMtNDY3YS04Mzc1LTkwZGVlMWE5MWZjNFwvZGdzYXZieS00MWU1ZTBkMS0yZjk1LTQ1ZjctYmVmMi03MmMzZjAxMTczMWEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.09E7zI-hdWFCHL3Aar2i043-Ic9iuvdkc8tnndvRWFg](https://static.wikia.nocookie.net/houkai-star-rail/images/e/e3/NPC_Dan_Feng.png/revision/latest/thumbnail/width/360/height/360?cb=20240624140119)">
 
 
 ☾About Me☽
