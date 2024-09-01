@@ -1,4 +1,4 @@
-【 Welcome To My Data Bank 】
+【 Welcome To My Palace 】
 
 <img src="https://static.wikia.nocookie.net/houkai-star-rail/images/e/e3/NPC_Dan_Feng.png/revision/latest/thumbnail/width/360/height/360?cb=20240624140119"> 
 
@@ -13,10 +13,10 @@
 
 ☾Interact and Do Not Interact☽
 
-<img src="https://s1.zerochan.net/Honkai.Star.Rail.600.4002958.jpg">
+<img src="https://i.pinimg.com/originals/f5/87/0f/f5870f7389401652646ff35f40d882c0.jpg">
 
 ➸ Please Interact  if you enjoy roleplaying or ships! Ships I enjoy are DanMarch, RenHeng, DanHill, JingHeng, LuoRen, JingLuo, LuiBai, Xingyue, Emilute, Chaggie, AdamsApple, RadioStatic, and HuskerDust. You're just overall a nice person. I love chilling with people that just wanna talk or share interests. Such as ocs, writing, ships roleplays! And Headcanons.
 
 ➸ Please do not interact, if you're going to be sexual with me. Yes, it's the 18+ server but there should be NO excuse for pushing boundaries, they exist for a reason! If you're going to just overall be rude, I can and will hide you and your friends if they persist I unhide, I can usually understand jokes but I normally wish to be left alone. 
 
-
+<img src="https://i.pinimg.com/736x/3e/b8/cd/3eb8cd304052d807caedcc4e39c48057.jpg">
