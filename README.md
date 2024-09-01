@@ -4,7 +4,7 @@
 
 ☾ These Sins of the past...Are mine and mine alone... ☽
 
-<img src="https://www.reddit.com/media?url=https%3A%2F%2Fpreview.redd.it%2Fdan-feng-fanmade-kit-cause-i-need-him-to-be-playable-v0-0ndjo8eg3ovc1.png%3Fwidth%3D1000%26format%3Dpng%26auto%3Dwebp%26s%3Db6a0715f857c6b0b02743f93eeb6a6892cb0a9f3"> 
+<img src="https://upload-os-bbs.hoyolab.com/upload/2023/08/27/65149329/06bec582e9e6b7b3342c3dd15b080175_1406381338630912284.jpg"> 
 
 ☾About Me☽
 ➸ I am sen, I am aroace, and my pronouns are they/he/she
