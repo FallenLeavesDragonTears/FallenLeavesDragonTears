@@ -9,7 +9,7 @@
 ☾About Me☽
 ➸ I am sen, I am aroace, and my pronouns are they/he/she
 ➸ I am 25 My Birthday is August 6th
-➸ ADHD touch of autism and Depression these are diganosed and something I truly struggle with. I can be pretty shy but I do my best! I am usually seen on ponytown as my Lute, Adam, and Swap Hazbin skins but can be seen as my Dan Feng and Dan Heng skins. These are me it's a kin thing. :D I am currently very hyperfixated on Star Rail and XingYue right now so. And no I will not move from the Hammock if you look at me angerily I WILL move if you are polite about it and ask me to.  
+➸ ADHD touch of autism and Depression these are diganosed and something I truly struggle with. I can be pretty shy but I do my best! I am usually seen on ponytown as my Dan Feng skins or my many au skins! These are me it's a kin thing. :D I am currently very hyperfixated on Star Rail and XingYue right now so. And no I will not move from the Hammock if you look at me angerily I WILL move if you are polite about it and ask me to.  
 
 ☾Interact and Do Not Interact☽
 
