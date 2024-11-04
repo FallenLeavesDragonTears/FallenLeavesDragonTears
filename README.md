@@ -23,7 +23,7 @@
 
 ☾My Lovely Friends~!☽
 
-<img src="https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fthe-high-cloud-quintet-v0-ncvo623yl0rb1.png%3Fwidth%3D1193%26format%3Dpng%26auto%3Dwebp%26s%3D2a490eb7b345ce6b1ed6c500e171ea8fe9f71251rdt=63678](https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fthe-high-cloud-quintet-v0-ncvo623yl0rb1.png%3Fwidth%3D1193%26format%3Dpng%26auto%3Dwebp%26s%3D2a490eb7b345ce6b1ed6c500e171ea8fe9f71251](https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fthe-high-cloud-quintet-v0-ncvo623yl0rb1.png%3Fwidth%3D1193%26format%3Dpng%26auto%3Dwebp%26s%3D2a490eb7b345ce6b1ed6c500e171ea8fe9f71251))">
+<img src="https://pbs.twimg.com/media/F8SWY8pbkAAEsi1.jpg">
 
 ➸ Ian
 ➸ Ari
