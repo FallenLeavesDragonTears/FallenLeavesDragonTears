@@ -11,6 +11,7 @@
 ➸ I am 25 My Birthday is August 6th
 ➸ ADHD touch of autism and Depression these are diganosed and something I truly struggle with. I can be pretty shy but I do my best! I am usually seen on ponytown as my Dan Feng skins or my many au skins! I am a high Dan Feng kinnie and I promise, I won't bite (unless you're Yingxing/affectionately) I am currently very hyperfixated on Star Rail and XingYue/FengXing right now so. And no I will not move from the Hammock if you look at me angerily I WILL move if you are polite about it and ask me to. I do not tolerate rudeness.
 ➸ THOSE OF YOU FROM ASHES CLICK ON MY RENTRY TO READ<3
+➸ I usually cannot tell if someone is interacting with me PLEASE WHISPER Do not just stare at me and make expressions it is very uncomfortable!
 
 ☾Interact and Do Not Interact☽
 
@@ -36,7 +37,6 @@
 ➸ Asuka
 ➸ Blin
 ➸ Kaito
-➸ Miz
 ➸ Shine 
 
 ➸ I love you guys so much even if I don't talk much to a few of you guys. But I generally adore you all so much! And I wish ya'll nothing but great in your lives. I hope you all realize just how important you are to me.
