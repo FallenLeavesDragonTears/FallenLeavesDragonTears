@@ -2,7 +2,7 @@
 
 <img src="https://static.wikia.nocookie.net/houkai-star-rail/images/e/e3/NPC_Dan_Feng.png/revision/latest/thumbnail/width/360/height/360?cb=20240624140119"> 
 
-☾ These Sins of the past...Are mine and mine alone... ☽
+❦❧❦❧❦❧❦❧❦❧❦❦❧❦❦❧❦❧❦❧❦❧❦❧❦❦❧❦
 
 <img src="https://upload-os-bbs.hoyolab.com/upload/2023/08/27/65149329/06bec582e9e6b7b3342c3dd15b080175_1406381338630912284.jpg"> 
 
@@ -53,3 +53,5 @@
 ➸ Alter
 
 I will never understand how I am seen as a parental figure to you two but, I adore you guys very much, and I wish you two an amazing real life too! I love ya'll so much, and I hope you guys keep strong!
+
+❦❧❦❧❦❧❦❧❦❧❦❦❧❦❦❧❦❧❦❧❦❧❦❧❦❦❧❦
